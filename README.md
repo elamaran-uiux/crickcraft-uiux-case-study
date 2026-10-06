@@ -63,7 +63,7 @@ UI/UX Designer
 
 View the complete UX case study on Behance:
 
-👉 [View CrickCraft Case Study on Behance]((https://www.behance.net/gallery/244630971/Crickcraft-Cricket-Training-App-UIUX-Case-Study))
+👉 [View CrickCraft Case Study on Behance](👉 [View My Behance Portfolio](https://www.behance.net/elamaranganesh2000) (https://www.behance.net/gallery/244630971/Crickcraft-Cricket-Training-App-UIUX-Case-Study))
 
 ## Portfolio
 
